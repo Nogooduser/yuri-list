@@ -1,6 +1,8 @@
 title: Yuri Manga Megalist
 description: Over 100 yuri manga for all your yuri needs
+google_analytics:
 show_downloads: false
+show_header: true
 remote_theme: "dracula/gh-pages"
 
 sass:
