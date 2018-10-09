@@ -160,7 +160,7 @@ I like quite a lot of these series, but because they never finished I can't in g
 [Edible Flowers](https://dynasty-scans.com/series/edible_flowers)|Currently on Hiatus|
 [Flower Flower](https://dynasty-scans.com/series/flower_flower)|Series was canceled and doesn't have an ending|
 [Haiko Dolls](https://dynasty-scans.com/series/haiko_dolls)|Dropped by the scanlator|Subtext
-[Killing me!](https://mangadex.org/title/27199/killing-me)|Series was canceled and never ended.|
+[Killing me!](https://mangadex.org/title/27199/killing-me)|Series was canceled and and doesn't have an ending|
 [Let's Start with a Friend](https://dynasty-scans.com/series/lets_start_with_a_friend)|Dropped by the scanlator|
 [Mononoke Sharing](https://mangadex.org/manga/16506/mononoke-sharing)|No scanlation updates in months|
 [Murcielago](https://mangadex.org/manga/10880/murci-lago)|No scanlation updates in months|
@@ -195,7 +195,7 @@ All these series have a noticeable degree of yuri subtext, but unfortunately non
 
 **Title**|**Notes**
 ---|---
-[A-Channel](https://mangadex.org/title/6687/a-channel)|Fun slice of life with lots of subtext|Subtext
+[A-Channel](https://mangadex.org/title/6687/a-channel)|Fun slice of life with lots of subtext
 [Bokura wa Minna Ikiteiru!](https://dynasty-scans.com/series/bokura_wa_minna_ikiteiru)|It was so close to being yuri
 [Gochuumon wa Usagi Desu ka?](https://dynasty-scans.com/series/gochuumon_wa_usagi_desu_ka)|This one is pretty much a yuri, they just need to confess
 [Hitoribocchi no OO Seikatsu](https://mangadex.org/manga/14508/hitoribocchi-no-oo-seikatsu)|I think everyone in here is just gay one way or another
