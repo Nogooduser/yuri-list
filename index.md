@@ -33,7 +33,7 @@ I put a **?** on the chapter number when the series is ongoing because I can't b
 [Catulus Syndrome](https://mangadex.org/title/21191/catulus-syndrome)|Ongoing|2|?
 [Chouchou Nannan](https://dynasty-scans.com/series/chouchou_nannan)|Complete|1|7
 [Cirque Arachne](https://dynasty-scans.com/series/cirque_arachne)|Complete|1|6
-[Citrus](https://dynasty-scans.com/series/citrus)|Ongoing|10|?
+[Citrus](https://mangadex.org/title/8772/citrus)|Complete|10|41
 [Clover](https://dynasty-scans.com/series/clover)|Complete|1|4
 [Concerto](https://dynasty-scans.com/series/concerto)|Complete|1|5
 [Dear My Teacher](https://dynasty-scans.com/series/dear_my_teacher)|Complete|2|8
