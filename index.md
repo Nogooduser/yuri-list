@@ -199,7 +199,6 @@ All these series have a noticeable degree of yuri subtext, but unfortunately non
 [Bokura wa Minna Ikiteiru!](https://dynasty-scans.com/series/bokura_wa_minna_ikiteiru)|It was so close to being yuri
 [Gochuumon wa Usagi Desu ka?](https://dynasty-scans.com/series/gochuumon_wa_usagi_desu_ka)|This one is pretty much a yuri, they just need to confess
 [Hitoribocchi no OO Seikatsu](https://mangadex.org/manga/14508/hitoribocchi-no-oo-seikatsu)|I think everyone in here is just gay one way or another
-[Itsuka Minoreba](https://dynasty-scans.com/series/someday_well_get_there)|Cute girls playing games. I am still hopeful for a yuri ending
 [Mahou Shoujo Lyrical Nanoha ViViD](https://dynasty-scans.com/series/mahou_shoujo_lyrical_nanoha_vivid)|Much like her mother, Vivid is definitely going dowth the path of lilies
 [New Game!](https://mangadex.org/manga/13622/new-game)|Just a little push and this could easily have yuri
 [Non Non Biyori](https://mangadex.org/manga/2459/non-non-biyori)|Hotaru fawning over Komachi is pretty much the reason I follow this
@@ -218,6 +217,7 @@ I loathe all these series. You might like them, so I put them here just in case,
 ---|---
 [Banana no Nana](https://dynasty-scans.com/series/banana_no_nana)|This series is so inconceivably stupid and ridiculous its only redeeming quality is that you can read it and laugh at how absurd it all is.
 [Cocytus](https://dynasty-scans.com/series/cocytus)|Every single character in this is a piece of shit and it might actually be one of the worst manga I've ever read as a whole
+[Itsuka Minoreba](https://dynasty-scans.com/series/someday_well_get_there)|Originally in the subtext section, the series ended up being a massive disappointment with a very underdeveloped story and characters that went nowhere.
 [Netsuzou Trap](https://mangadex.org/manga/14313/netsuzou-trap-ntr)|It's telling when the most likeable character in your yuri series is a man. Avoid this like the plague unless you're so into NTR that you don't even care if the story/yuri is bad
 [Onee-san wa Joshi Shougakusei ni Kyoumi ga Arimasu](https://mangadex.org/title/26432/onee-san-wa-joshi-shougakusei-ni-kyoumi-ga-arimasu)|The main character is a straight up self admitted pedophile who wants to molest an actual kid and whose behavior is completely excused because she is a woman. Just... no.
 [Shitsurakuen](https://dynasty-scans.com/series/shitsurakuen)|Girls suffer 24/7. Premise was somewhat interesting but is ruined by the execution and the ending. Oh and every lesbian girl aside from the protagonist turns straight because  ¯\\\_(ツ)_/¯
