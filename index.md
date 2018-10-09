@@ -21,6 +21,7 @@ I put a **?** on the chapter number when the series is ongoing because I can't b
 **Title**|**Status**|**Volumes**|**Chapters**
 ---|:---:|:---:|:---:
 [2DK, G-pen, Alarm clock.](https://mangadex.org/title/26967/2dk-g-pen-alarm-clock)|Ongoing|7|?
+[About a College Girl Who Gets Picked Up at a Mixer by an Older Girl](https://mangadex.org/title/30568/about-a-college-girl-who-gets-picked-up-at-a-mixer-by-an-older-girl)|Ongoing|?|?
 [All You](https://dynasty-scans.com/series/all_you)|Complete|1|7
 [Ameiro Kouchakan Kandan](https://dynasty-scans.com/series/chatting_at_the_amber_teahouse)|Complete|2|15
 [Ano Ko ni Kiss to Shirayuki wo](https://dynasty-scans.com/series/a_kiss_and_a_white_lily)|Ongoing|9|?
@@ -144,6 +145,7 @@ These are collections of yuri works I also recommend. Some have larger series co
 [Love Flicker](https://dynasty-scans.com/anthologies/love_flicker)|Collection of short stories, includes Takemiya Jin's debut work *All My Love and Lies*
 [Kila Kila](https://dynasty-scans.com/anthologies/kila_kila)|Includes the first 3 chapters of *My Beloved*
 [Perfume of Love](https://dynasty-scans.com/anthologies/perfume_of_love)|Includes the firt 3 chapters of *Steps*
+[Rainy Song](https://dynasty-scans.com/anthologies/rainy_song)|Collection of short stories, includes a Kimi Koi Limit spin-off story
 [Resounding Echo](https://dynasty-scans.com/anthologies/resounding_echo)|Includes a 3 chapter main story. All the characters in the anthology are also connected in some form as it's set in the same school.
 [Steps](https://dynasty-scans.com/anthologies/steps_collection)|Includes the last 4 chapters of *Steps* and the next 3 chapters of *My Beloved*
 
@@ -161,13 +163,11 @@ I like quite a lot of these series, but because they never finished I can't in g
 [Flower Flower](https://dynasty-scans.com/series/flower_flower)|Series was canceled and doesn't have an ending|
 [Haiko Dolls](https://dynasty-scans.com/series/haiko_dolls)|Dropped by the scanlator|Subtext
 [Killing me!](https://mangadex.org/title/27199/killing-me)|Series was canceled and and doesn't have an ending|
-[Let's Start with a Friend](https://dynasty-scans.com/series/lets_start_with_a_friend)|Dropped by the scanlator|
 [Mononoke Sharing](https://mangadex.org/manga/16506/mononoke-sharing)|No scanlation updates in months|
 [Murcielago](https://mangadex.org/manga/10880/murci-lago)|No scanlation updates in months|
 [Office Romance: Women's Division](https://dynasty-scans.com/series/office_romance_womens_division)|No scanlation updates in years.
 [Prism](https://dynasty-scans.com/series/prism)|Cancelled by the publisher after [allegations of tracing](https://www.animenewsnetwork.com/news/2012-06-01/prism-yuri-manga-put-on-hold-due-to-similiarities-to-photos)
 [Rakka Ryuusui](https://dynasty-scans.com/series/rakka_ryuusui)|No scanlation updates in years|
-[Rainy Song](https://dynasty-scans.com/anthologies/rainy_song)|No scanlation updates in years|
 [Sougou Tovarisch](https://dynasty-scans.com/series/comprehensive_tovarisch)|No scanlation updates in almost a year|
 
 ## Average Series
