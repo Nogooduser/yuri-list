@@ -19,7 +19,7 @@ I put a **?** on the chapter number when the series is ongoing because I can't b
 
 cover|status|volumes|chapters
 ---|---|---|---
-<img src="https://mangadex.org/images/manga/30097.jpg?1535682127" height=100>|top|kek|max
+![](https://mangadex.org/images/manga/30097.jpg?1535682127 =100x)|top|kek|max
 
 
 **Title**|**Status**|**Volumes**|**Chapters**
