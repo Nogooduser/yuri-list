@@ -103,6 +103,7 @@ I put a **?** on the chapter number when the series is ongoing because I can't b
 [Shinozaki-san Ki wo Ota Shika ni!](https://mangadex.org/manga/9177/shinozaki-san-ki-wo-ota-shika-ni)|Complete|9|47
 [Shouraiteki ni Shindekure](https://dynasty-scans.com/series/shouraiteki_ni_shindekure)|Ongoing|3|?
 [Smile Style](https://dynasty-scans.com/series/smile_style)|Scanlating|3|?
+[So, Do You Want To Go Out, Or?](https://mangadex.org/title/30097/so-do-you-want-to-go-out-or)|Ongoing|?|?
 [Steps](https://dynasty-scans.com/series/steps)|Complete|N/A|7
 [Strawberry Fields wo Mou Ichido](https://mangadex.org/title/21659/strawberry-fields-wo-mou-ichido)|Ongoing|2|?
 [Strawberry Sweet Shake](https://dynasty-scans.com/series/strawberry_shake)|Complete|2|17
