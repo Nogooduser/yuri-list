@@ -17,11 +17,6 @@ Notes:
 **Scanlating** means the series has been complete but is not fully translated yet  
 I put a **?** on the chapter number when the series is ongoing because I can't be bothered to update every single ongoing series' chapter numbers.
 
-cover|status|volumes|chapters
----|---|---|---
-<img src="https://mangadex.org/images/manga/30097.jpg?1535682127" alt="drawing" width="100" height="100"/>|top|kek|max
-
-
 **Title**|**Status**|**Volumes**|**Chapters**
 ---|:---:|:---:|:---:
 [2DK, G-pen, Alarm clock.](https://mangadex.org/title/26967/2dk-g-pen-alarm-clock)|Ongoing|7|?
