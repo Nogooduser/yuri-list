@@ -17,6 +17,9 @@ Notes:
 **Scanlating** means the series has been complete but is not fully translated yet  
 I put a **?** on the chapter number when the series is ongoing because I can't be bothered to update every single ongoing series' chapter numbers.
 
+cover|status|volumes|chapters
+<img src="https://mangadex.org/images/manga/30097.jpg?1535682127" height=30>|top|kek|max
+
 
 **Title**|**Status**|**Volumes**|**Chapters**
 ---|:---:|:---:|:---:
