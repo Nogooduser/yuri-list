@@ -141,6 +141,7 @@ These are collections of yuri works I also recommend. Some have larger series co
 [As Yet I Have No Name](https://dynasty-scans.com/anthologies/as_yet_i_have_no_name)|Includes a 5 chapter main story and the prologue to *Pure Water Adolescence*
 [Game](https://dynasty-scans.com/anthologies/game_collection)|Includes the *Game* trilogy and the last 4 chapters of *My Beloved*
 [I'll Send Her Home on the Last Train](https://dynasty-scans.com/anthologies/ill_send_her_home_on_the_last_train)|Collection of short stories
+[Himitsu no Kakera](https://mangadex.org/title/27663/himitsu-no-kakera)|Collection of short stories with cute goat girls
 [Linkage](https://dynasty-scans.com/anthologies/linkage)|Collection of short stories
 [Love Flicker](https://dynasty-scans.com/anthologies/love_flicker)|Collection of short stories, includes Takemiya Jin's debut work *All My Love and Lies*
 [Kila Kila](https://dynasty-scans.com/anthologies/kila_kila)|Includes the first 3 chapters of *My Beloved*
